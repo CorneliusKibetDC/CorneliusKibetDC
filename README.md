@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @CorneliusKibetDC
-- 👀 I’m interested in...
+- 👀 I’m interested in Space Technology... Quantum Computing
 - 🌱 I’m currently learning software engineering as FullStack Developer
 - 💞️ I’m looking to collaborate on any available project
 - 📫 How to reach me# Email-kapslogo18@gmail.com. Phone-+254742167155
